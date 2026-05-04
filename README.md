@@ -1,4 +1,4 @@
-# Vraj Rajpura
+# 👨‍💻Vraj Rajpura
 
 MS Computer & Information Science · University of Washington, Seattle · Graduating June 2026  
 Research Assistant, AI Software Engineer @ UW eScience Institute & Paul G. Allen School  
